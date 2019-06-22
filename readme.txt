@@ -20,7 +20,7 @@ If you choose a bike, get a cheap lock to keep the crackheads away. Walking suck
 
 get welfare payments. YOU NEED A PHOTO ID FOR THIS.
 
-Cash EBT cards has a lot of stupid restrictions you can bypass by having an online bank account. All you need is
+Cash EBT cards have a lot of stupid restrictions you can bypass by having an online bank account. All you need is
 
 1.A SSN
 
@@ -87,5 +87,7 @@ A:I browsed though almost the full archive of 4chan /r9k/ and wizardchan to get 
 Whoever you are, i wish you luck in NEET life.
 
 @copyright anon This work is under a creative commons attribution-share Alike License.
+
+ver 1.1.3 Fixed formatting issues and spelling errors.
 
 ver 1.1.3 Fixed formatting issues and spelling errors.

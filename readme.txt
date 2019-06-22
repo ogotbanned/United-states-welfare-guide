@@ -1,4 +1,4 @@
-o you decided not to kill yourself and want to get on the bennies(welfare). Great! The us welfare system is better then you think, you just have know what to do and how to work the system. This guide assumes you live in the city and have a disabled diagnosis. If you don't have one, you can get one, il tell how below. This guide is for folks who are> 1: US citizens (legal)
+so you decided not to kill yourself and want to get on the bennies(welfare). Great! The us welfare system is better then you think, you just have know what to do and how to work the system. This guide assumes you live in the city and have a disabled diagnosis. If you don't have one, you can get one, il tell how below. This guide is for folks who are> 1: US citizens (legal)
 
 2: Have 500 usd on hand
 

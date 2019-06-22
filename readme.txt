@@ -7,7 +7,7 @@ So you decided not to kill yourself and want to get on the bennies(welfare). Gre
 4: Live in a major democrat controlled us city/state that has fucking money.
 
 5: A stable phone number.
-
+_______________________________________________________________
 1:You need transportation. I recommend a bike or a bus pass.
 
 If you choose a bike, get a cheap lock to keep the crackheads away. Walking sucks, anything is better then walking, /bike/bus/scooter/ etc.

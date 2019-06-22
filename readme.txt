@@ -1,4 +1,4 @@
-So you decided not to kill yourself and want to get on the bennies(welfare). Great! The us welfare system is better then you think, you just have know what to do and how to work the system. This guide assumes you live in the city and have a disabled diagnosis. If you don't have one, you can get one, il tell how below. This guide is for folks who are>
+So you decided not to kill yourself and want to get on the bennies(welfare). Great! The us welfare system is better then you think, you just have to know what to do and how to work the system. This guide assumes you live in the city and have a disabled diagnosis. If you don't have one, you can get one, il tell how below. This guide is for folks who are>
 
 1:US citizens (legal)
 
@@ -44,7 +44,7 @@ A bank account
 
 A means of transportation. (I recommend a bike.)
 
-Ebt and medical aid. Cash (general assistance) if you really live in a leftest state.
+EBT and medical aid. Cash (general assistance) if you really live in a leftest state.
 
 8:Now comes the hard part: Go to your local social security office and apply for ssi/ssdi. Make sure you have a stable phone number and an address as this is going to take some time.
 
@@ -72,7 +72,7 @@ a3:Use The internet. If your us state doesn't have cash relief you still have to
 
 q4:SSI Or ssdi?
 
-a5:If you parents allow you to use their work credits, Choose ssdi. If not there's a shitty asset limit you can't go under. It can be easily bypassed if you know what you're doing but ssdi pays more in general.
+a5:If your parents allow you to use their work credits, Choose ssdi. If not there's a shitty asset limit you can't go under. It can be easily bypassed if you know what you're doing but ssdi pays more in general.
 
 q6:Can you live off general assistance (cash ebt)?
 

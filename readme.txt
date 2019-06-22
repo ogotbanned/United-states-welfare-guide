@@ -12,7 +12,7 @@ So you decided not to kill yourself and want to get on the bennies(welfare). Gre
 
 If you choose a bike, get a cheap lock to keep the crackheads away. Walking sucks, anything is better then walking, /bike/bus/scooter/ etc.
 
-2:, You NEED A PHOTO ID. Get on at the dmv. Its cheap. YOU NEED ONE TO CONTINUE.
+2:, You NEED A PHOTO ID. Get one at the dmv. Its cheap. YOU NEED ONE TO CONTINUE.
 
 3: Open a bank account with 0 fees with a "too big to fail" bank. So that when the economy gos to shit, you still
 
@@ -84,4 +84,4 @@ A: I browsed though almost the full archive of 4chan /r9k/ and wizardchan to get
 
 Whoever you are, i wish you luck in NEET life. @copyright anon This work is under a creative commons attribution-share Alike License.
 
-ver 1.1 Fixed formatting issues.
+ver 1.1.1 Fixed formatting issues and spelling errors.

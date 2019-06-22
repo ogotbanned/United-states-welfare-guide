@@ -86,5 +86,3 @@ Whoever you are, i wish you luck in NEET life. @copyright anon This work is unde
 
 ver 1.1.2 Fixed formatting issues and spelling errors.
 
-
-ver 1.1.1 Fixed formatting issues and spelling errors.

@@ -90,4 +90,4 @@ Whoever you are, i wish you luck in NEET life.
 
 @copyright anon This work is under a creative commons attribution-share Alike License.
 
-ver 1.1.5 7/22/19 ixed big formatting issues and spelling errors. Made things more nonspecific for other folks situations.
+ver 1.1.5 7/22/19 fixed big formatting issues and spelling errors. Made things more nonspecific for other folks situations.

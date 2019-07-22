@@ -34,9 +34,9 @@ Il pause a little here and talk and little about STATE welfare.
 If you can get on state welfare, apply for that first. They have SSI applicant assistance programs and Cash EBT that can help you out while waiting for SSDI/SSI. 
 
 
-4:Apply for STATE welfare. Make sure to apply for medicaid. EBT, and maybe EBT cash(General Assistance) depending on your state. I Live in a leftest state that has money so my state has General Assistance.
+4:Apply for STATE welfare. Make sure to apply for Medicaid. Food Stamps, and maybe Cash EBT (General Assistance) depending on your  US State. I Live in a leftest state that has money so my state has General Assistance.
 
-5:Wait till your ebt/medicare application at your local welfare office gets though. Most Cash EBT (General Assistance) have work requirements. You can bypass this by having a medical diagnosis.  More on this soon. 
+5:Wait till your Cash EBT/Medicaid/Food Stamps application at your local welfare office gets though. Most Cash EBT (General Assistance) have work requirements. You can bypass this by having a medical diagnosis.  More on this soon. 
 
 6:Get a mental illness diagnoses by a medical professional. Use your Medicaid. The state welfare office (if you live in a leftest state with money) Will help you out with that.  What mental illness you choose is up to yourself to decide.
 
@@ -70,7 +70,7 @@ Q2:How do appointments work?
 
 A2:ALWAYS arrive an hour early, no matter what happens. You can call to reschedule but the welfare call centers are always busy.
 
-Q3:How do i know if my state has General assistance? (also known as Cash Ebt)
+Q3:How do i know if my state has General assistance? (also known as Cash EBT)
  
 A3:Use The internet. If your us state doesn't have cash relief you still have to apply for medicaid. Without local Cash EBT(General assistance), get ready to wait penniless for months.
 
@@ -87,11 +87,11 @@ Q:How the hell did you get all this info?
 
 A:I browsed though almost the full archive of 4chan /r9k/ and wizardchan to get this info. 
 
-So in summary: If you want the welfare money, get ready to work for it. All you need is a functioning brain, some cash and a drive to get on welfare.  Make sure to help yourself first, in the USA no one cares at all  about a NEET. 
+So in summary: If you want the welfare money, get ready to work for it. All you need is a functioning brain, some cash and a drive to get on welfare.  Make sure to assist yourself first, in the USA no one cares at all about a NEET. Help yourself out!
 
 Whoever you are, i wish you luck in NEET life. 
 
 @copyright anon
 This work is under a creative commons attribution-share Alike License.
 
-ver 1.1.5 Fixed big formatting issues and spelling errors. Made things more nonspecific for other folks situations.  
+ver 1.1.5 Fixed big formatting issues and spelling errors. Made things more nonspecific for other folks situations.

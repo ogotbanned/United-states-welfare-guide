@@ -47,7 +47,7 @@ A Bank Account
 
 A means of transportation. (I recommend a bike.)
 
-EBT and medical aid. Cash EBT (General Assistance)  if you really live in a leftest state with money.
+Food Stamps and Medicaid. Cash EBT (General Assistance) if you really live in a leftest state with money.
 
 8:Now comes the hard part: Go to your local social security office and apply for SSI/SSDI. Make sure you have a stable phone number and an address as this is going to take some time.
 
@@ -86,7 +86,7 @@ Q:How the hell did you get all this info?
 
 A:I browsed though almost the full archive of 4chan /r9k/ and wizardchan to get this info. 
 
-So in summary: If you want the welfare money, get ready to work for it. All you need is a functioning brain, some cash and a drive to get on welfare.  Make sure to assist yourself first, in the USA no one cares at all about a NEET. Help yourself out!
+So In Summary: If you want the welfare money, get ready to work for it. All you need is a functioning brain, some cash and a drive to get on welfare.  Make sure to assist yourself first, in the USA no one cares at all about a NEET. Help yourself out!
 
 Whoever you are, i wish you luck in NEET life. 
 

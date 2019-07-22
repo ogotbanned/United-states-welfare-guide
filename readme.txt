@@ -34,7 +34,7 @@ Il pause a little here and talk and little about STATE welfare.
 If you can get on state welfare, apply for that first. They have SSI applicant assistance programs and Cash EBT that can help you out while waiting for SSDI/SSI. 
 
 
-4:Apply for STATE welfare. Make sure to apply for medicaid. EBT, and maybe EBT cash(general relief.) depending on your state. I Live in a leftest state that has money so my state has general relief.
+4:Apply for STATE welfare. Make sure to apply for medicaid. EBT, and maybe EBT cash(General Assistance) depending on your state. I Live in a leftest state that has money so my state has General Assistance.
 
 5:Wait till your ebt/medicare application at your local welfare office gets though. Most Cash EBT (General Assistance) have work requirements. You can bypass this by having a medical diagnosis.  More on this soon. 
 
